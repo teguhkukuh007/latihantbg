@@ -1,0 +1,2 @@
+# latihantbg
+tentang manajemen
